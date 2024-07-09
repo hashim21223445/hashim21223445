@@ -5,7 +5,7 @@
  J'ai de multiples tâches dans le domaine technologique, de la conception frontale au développement de logiciels, en passant par l'analyse de données, l'exploitation de systèmes opérationnels et l'utilisation de technologies et d'applications modernes.  Je crois également au soutien des développeurs, des startups et des organisations en introduisant des technologies numériques et modernes, notamment l'IA.
 
  J’attends avec impatience une coopération collective afin que nous puissions contribuer ensemble à la construction d’un environnement humanitaire qui aide l’humanité à atteindre ses objectifs humanitaires.  Je m'engage à aider les autres et moi et mes collègues de divers domaines sommes constamment disponibles.
-
+https://hashim21223445.github.io/hash-toolbox/
  Merci et j'attends avec impatience l'opportunité de travailler avec vous.
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
